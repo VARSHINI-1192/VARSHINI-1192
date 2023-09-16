@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @VARSHINI-1192
-- 
---->
+-I'm currently studying in the department of mechanical and automation at Sri Sairam engineering college...
